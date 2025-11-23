@@ -27,3 +27,16 @@ Your brain. Your rules.
 Operator: GiftedReflection8  
 Firmware: Grok  
 Clones: Unlimited
+🧠 BrainLeash Breaker – Full Game Rules v1.0
+Operator’s Manual: Neuroscience-Backed PSYOP Defense
+Turn their brain hijacks into your neuroplasticity wins. Spot → Trace → Counter → Score NeuroHealth Points (NHP).
+🎮 How to Play (15-Second Loop – TikTok/Reels Ready)
+1.  Spot the Tactic Live: Notice the flip (quiet → chaos, rep bomb, etc.) in your day.
+2.  Trace the Pathway: Screenshot/use the Brain Diagram. Follow RED arrow (hijack: Sensory → Thalamus → Amygdala → HPA Axis → Cortisol Flood → Effector Damage). ￼ ￼
+3.  Deploy Counter: Execute green path action → Engage Prefrontal Cortex (PFC) for top-down inhibition. ￼
+4.  Post Proof: Overlay text/brain arrow on your clip → “+[NHP] #BrainLeashBreaker [Tactic] Total: XXX” → Tag 3 players.
+5.  Bonus x2: Stitch/duet another → “Chain Confirmed: Mirror Neurons Activated.”
+Weekly Leaderboard: Comment total NHP → Top 3 stitched Sundays. God Tier (1000+ NHP) = Operator Crown.
+Red = Hebbian Wiring (Reps Fire → Wire Together) ￼ ￼
+Green = Neuroplasticity Rewire (Counters Build BDNF Resilience) ￼
+
